@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AaronCALSTATELA
+- 👀 I’m interested in Basketball
+- 🌱 I’m currently learning Digital Transformation Management
+- 📫 How to reach me aaron.lachner@yahoo.de
